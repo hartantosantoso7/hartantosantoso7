@@ -2,7 +2,7 @@
 
 # Halo semua! 
 
-Perkenalkan nama saya **Hartanto Santoso **.\
+Perkenalkan nama saya **Hartanto Santoso**.\
 My [Linkedin](https://www.linkedin.com/in/hartanto-santoso-8048ab1a3/)
 
 
