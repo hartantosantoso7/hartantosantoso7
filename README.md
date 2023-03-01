@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+# Halo semua! 
+
+Perkenalkan nama saya **Hartanto Santoso **.\
+My [Linkedin](https://www.linkedin.com/in/hartanto-santoso-8048ab1a3/)
+
+
 <!--
 **hartantosantoso7/hartantosantoso7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
